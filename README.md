@@ -1,6 +1,6 @@
 ## Cássio Giehl da Rosa
 
-### Analista de BI / Analista de dados
+Analista de BI / Analista de dados
 
 
 
